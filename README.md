@@ -1,0 +1,9 @@
+- 👋 Hi, I’m @hilicharles, but you can call me Charles/Charlie!
+- 
+- 👀 I’m interested in piano, football, video games, coffee and pretty much open to anything <33
+- 
+- 🌱 I’m currently learning piano and working on my cooking skills :D
+- 
+- 📫 How to reach me:
+- email: trumpsterftw@gmail.com (i do not support any political parties of the USA since I am not from America)
+- discord: givemejadespear/#2017 (will update as much as possible i change users a lot :3)
